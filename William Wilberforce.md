@@ -9,3 +9,5 @@ Many of the Wilberforce's family's freinds commented on Barbara's poor housekeep
 ## Chapter 15
 What is the meaning of the word "𝙀𝙢𝙖𝙣𝙘𝙞𝙥𝙖𝙩𝙚" and "𝙀𝙢𝙖𝙣𝙘𝙞𝙥𝙖𝙩𝙞𝙤𝙣"?
 To free and freeing.
+What were the two key of the British Bill to Emancipate the Slaves?
+The Election and the Bill.
