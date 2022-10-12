@@ -4,6 +4,8 @@
 The servants enjoyed working, and they always had breakfast with guests.
 What do you like about the way the Wilberforces lived?
 
+(っ◔◡◔)っ
+
 2. That they invited guests to breakfast.
 
 3. What do you dislike about their manner of living?
@@ -19,3 +21,15 @@ The Election and the Bill.
 𝕞𝕒𝕪 𝕓𝕖 𝕕𝕦𝕖 𝕥𝕙𝕖𝕞 𝕗𝕠𝕣 𝕒𝕟𝕪 𝕣𝕖𝕒𝕝 𝕙𝕒𝕣𝕞 𝕥𝕙𝕖𝕪 𝕞𝕒𝕪 𝕤𝕦𝕗𝕗𝕖𝕣 𝕒𝕤 𝕒 𝕣𝕖𝕤𝕦𝕝𝕥 𝕠𝕗 𝕝𝕠𝕤𝕚𝕟𝕘 𝕥𝕙𝕖𝕚𝕣 𝕤𝕝𝕒𝕧𝕖𝕤"What does that mean?
 
 I have no problem paying them back for their slaves for the money that they lost when they suffer financial pain as them losing there slaves.
+
+What was the Proclamation Society? 
+
+The Proclamation Society was a team who helped goverments officials help frind crimes.
+
+What do you think of Wilberforce's idea of "a different kind of hyprocrisy"?
+Do you think it is possible for people to think it is 𝕗𝕒𝕤𝕙𝕚𝕠𝕟𝕒𝕓𝕝𝕖 to be 𝓲𝓶𝓶𝓸𝓻𝓪𝓵? Can you think of any examples of people who do things because"everyone" around them acts that way - things they probably wouldnt do if fewer people acted in that particular manner?
+Mneme
+
+What was the society for Bettering the Condition
+
+ Because or else poor people would be more sadder than ever and they wouldn't they would'nt have to worry about being more rich.
