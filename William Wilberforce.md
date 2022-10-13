@@ -27,9 +27,22 @@ What was the Proclamation Society?
 The Proclamation Society was a team who helped goverments officials help frind crimes.
 
 What do you think of Wilberforce's idea of "a different kind of hyprocrisy"?
-Do you think it is possible for people to think it is 𝕗𝕒𝕤𝕙𝕚𝕠𝕟𝕒𝕓𝕝𝕖 to be 𝓲𝓶𝓶𝓸𝓻𝓪𝓵? Can you think of any examples of people who do things because"everyone" around them acts that way - things they probably wouldnt do if fewer people acted in that particular manner?
-Mneme
 
-What was the society for Bettering the Condition
 
- Because or else poor people would be more sadder than ever and they wouldn't they would'nt have to worry about being more rich.
+
+Do you think it is possible for people to think it is 𝕗𝕒𝕤𝕙𝕚𝕠𝕟𝕒𝕓𝕝𝕖 to be 𝓲𝓶𝓶𝓸𝓻𝓪𝓵?
+
+
+
+Can you think of any examples of people who do things because"everyone" around them acts that way - things they probably wouldnt do if fewer people acted in that particular manner?
+
+
+
+What was the society for Bettering the Condition of the poor?
+
+It is a team that helps the children take out some of their working hours.
+
+ Do you think it was a good thing that Wilberforce helped found the Society for Bettering the Condition of the Poor? 
+ Why or why not? give me some examples.
+
+Yes, because otherwise poor people would be sadder than ever and they would have to worry about being richer. 
