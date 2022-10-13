@@ -49,3 +49,4 @@ Yes, because otherwise the children would be working 12 hours a day.
 
 What changes did Wilberforce bring in india?
 
+ The British don't have to force Indians to become Christian.
