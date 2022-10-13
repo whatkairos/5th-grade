@@ -48,3 +48,4 @@ Do you think it was a good thing that Wilberforce helped found the Society for B
 Yes, because otherwise the children would be working 12 hours a day.
 
 What changes did Wilberforce bring in india?
+
