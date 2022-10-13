@@ -34,9 +34,9 @@ Do you think it is possible for people to think it is 𝕗𝕒𝕤𝕙𝕚𝕠�
 
 
 
-Can you think of any examples of people who do things because"everyone" around them acts that way - things they probably wouldnt do if fewer people acted in that particular manner?
+Can you think of any examples of people who do things because "everyone" around them acts that way - things they probably wouldnt do if fewer people acted in that particular manner?
 
-
+People on Khan academy who skip math lessons and do advanced lessons.
 
 What was the society for Bettering the Condition of the poor?
 
