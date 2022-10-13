@@ -50,3 +50,16 @@ Yes, because otherwise the children would be working 12 hours a day.
 What changes did Wilberforce bring in india?
 
  The British don't have to force Indians to become Christian.
+
+ What does lean mean when he says" Marked the change from looting to paternalism"?
+
+ That at least paternalism is better than looting.
+
+Why?
+
+Because they like being taking care of.
+
+
+He libarized British Politics
+
+What did Wilberforce do what you like?
