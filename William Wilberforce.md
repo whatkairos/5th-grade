@@ -36,13 +36,15 @@ Do you think it is possible for people to think it is 𝕗𝕒𝕤𝕙𝕚𝕠�
 
 Can you think of any examples of people who do things because "everyone" around them acts that way - things they probably wouldnt do if fewer people acted in that particular manner?
 
-People on Khan academy who skip math lessons and do advanced lessons.
+People on Khan academy who skip to advanced javascript and make fake games like "Flabby Bird."
 
 What was the society for Bettering the Condition of the poor?
 
 It is a team that helps the poor children take out some of their working hours.
 
- Do you think it was a good thing that Wilberforce helped found the Society for Bettering the Condition of the Poor? 
+Do you think it was a good thing that Wilberforce helped found the Society for Bettering the Condition of the Poor? 
  Why or why not? give me some examples.
 
-Yes, because otherwise poor people would be sadder than ever and they would have to worry about being richer. 
+Yes, because otherwise the children would be working 12 hours a day.
+
+What changes did Wilberforce bring in india?
