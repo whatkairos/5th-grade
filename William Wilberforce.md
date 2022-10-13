@@ -40,7 +40,7 @@ Can you think of any examples of people who do things because"everyone" around t
 
 What was the society for Bettering the Condition of the poor?
 
-It is a team that helps the children take out some of their working hours.
+It is a team that helps the poor children take out some of their working hours.
 
  Do you think it was a good thing that Wilberforce helped found the Society for Bettering the Condition of the Poor? 
  Why or why not? give me some examples.
