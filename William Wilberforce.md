@@ -63,3 +63,5 @@ Because they like being taking care of.
 He libarized British Politics
 
 What did Wilberforce do what you like?
+
+He stopped Christians from looting  Indians.
