@@ -1,3 +1,5 @@
 # Monte Carlo π
 
-![This is an image](kairos-monte-carlo.jpeg)
+You can the "Monte Carlo method" to approximate a difficult method. So in this case, we used the "Monte Carlo method" to approximate pi.
+
+![Monte Carlo π](kairos-monte-carlo.jpeg)
